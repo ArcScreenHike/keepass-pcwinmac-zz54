@@ -1,4 +1,4 @@
-# 
+# Nuevo KeePass plugins para Mac OS | Oficial KeePass plugins para PC Windows. Con bóveda cifrada y protección de red — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
